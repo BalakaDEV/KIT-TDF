@@ -1,5 +1,5 @@
 # KIT-TDF
-Textura feita para um amigo
+Essa é uma das minha primeiras texturizações para FIVEM. Espero que goste!
 
 # Creditos: Balakaッ#2206
 
